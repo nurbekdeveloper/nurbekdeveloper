@@ -26,4 +26,4 @@ width="30px"></code>
 - 📍 &nbsp; Current location: Uzbekistan Anywhere
 - 📝&nbsp; Ask me about anything, I am happy to help
 - 📨&nbsp; How to reach me: [@nurbeknormatov_](https://www.instagram.com/nurbeknormatov_02/)
-- 📨&nbsp; How to reach me: [@nurbeknormatov_](https://t.me/Normatov_0_2)
+- 📨&nbsp; How to reach me: [@nurbeknormatov_](https://t.me/nurbeknormatov)
